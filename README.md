@@ -1,1 +1,0 @@
-# Workspace-ONE-Magic-Link-Orchestration-Using-Saviynt-IGA
